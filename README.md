@@ -9,7 +9,7 @@ I am currently participating in a data science bootcamp to further enhance my sk
 ## **How to Reach Me**
 Feel free to reach out to me via:
 
-Email: Mphilbert@gmail.com
+Email: Mphilbert1@gmail.com
 
 LinkedIn: https://www.linkedin.com/in/miles-philbert-3343806a/
 
